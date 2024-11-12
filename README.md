@@ -3,4 +3,4 @@ zs# Soudless c+h | For all filters | Website sppt @Seek67 @loveGaming-GI @Swan-N
 **Souldles/*
 - 💬 Ask me about anything
 - 😄 Pronouns: he/him
-<img aling="right"="Coding" width="400" src="https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Frandal-ivory-ranfren-ilysm-gif">
+src="https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Frandal-ivory-ranfren-ilysm-gif">
