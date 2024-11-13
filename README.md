@@ -9,4 +9,5 @@ zs# Soudless c+h | For all filters | Website sppt @Seek67 @loveGaming-GI @Swan-N
 - @Seek67 @loveGaming-GI @Swan-N3on
 - ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=anuraghazra&theme=dark&show_icons=true)
 - Ed. 
--!https://github.com/Souldles/SOULDLES/issues/2#issue-2654638040
+![ranfren-randal](https://github.com/user-attachments/assets/e8863680-3e8f-4ed5-9f09-01741b1717cd)
+
