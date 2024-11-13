@@ -1,13 +1,13 @@
-
-                              • main acc : @Souldlessfix •
-                              •  Discord : Souldlessfix • 
-                                  • Steam : Souldles •
+ 
+                                     • main acc : @Souldlessfix •
+                                     •  Discord : Souldlessfix • 
+                                         • Steam : Souldles •
                                 
-                              Regularly Afk listen to music
-                     - Don't take any demands when I don't know you -
+                                      Regularly Afk listen to music
+                           - Don't take any demands when I don't know you -
    
   
-                                       »»——⍟——««
+                                              »»——⍟——««
                                        
 
 
