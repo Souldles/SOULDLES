@@ -19,7 +19,5 @@
 
    ![tumblr_pck782oqNt1rlc5h1o1_640](https://github.com/user-attachments/assets/9a8d3966-8bdf-47eb-b684-10eabed0019c)
    
-![LEGO_MonkieKid_horizontal_logo_TM](https://github.com/user-attachments/assets/7d091c66-c108-4dfb-859e-35d36fcf20a5)
-![Không Có Tiêu Đề259_20241113192546](https://github.com/user-attachments/assets/92c15bc1-bcf8-4de7-a16c-b2b3bc20c07e)
 
 
