@@ -5,7 +5,7 @@
                                 
                             Regularly Afk listen to music
                    - Don't take any demands when I don't know you -
-- ![ranfren-randal](https://github.com/user-attachments/assets/e8863680-3e8f-4ed5-9f09-01741b1717cd)
+               ![ranfren-randal](https://github.com/user-attachments/assets/e8863680-3e8f-4ed5-9f09-01741b1717cd)
 
 
 
