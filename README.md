@@ -27,5 +27,10 @@
 
 
 
+![Team-Fortress-2-logo](https://github.com/user-attachments/assets/8f59d394-05e5-4bee-9122-ec67cbaa89cd)
+
+![LEGO_MonkieKid_horizontal_logo_TM](https://github.com/user-attachments/assets/7d091c66-c108-4dfb-859e-35d36fcf20a5)
+
+![jet_set_radio___logo_by_peasters_deeairy-pre](https://github.com/user-attachments/assets/c08181ee-c5b9-4e10-83bc-d8007c31fdf0)
 
 
