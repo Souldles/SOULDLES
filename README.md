@@ -7,7 +7,11 @@
                            - Don't take any demands when I don't know you -
    
   
-                                              »»——⍟——««
+                                               »»——⍟——««
+
+
+   ![tumblr_pck782oqNt1rlc5h1o1_640](https://github.com/user-attachments/assets/9a8d3966-8bdf-47eb-b684-10eabed0019c)
+
                                        
 
 
