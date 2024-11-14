@@ -19,6 +19,6 @@
 
    ![tumblr_pck782oqNt1rlc5h1o1_640](https://github.com/user-attachments/assets/9a8d3966-8bdf-47eb-b684-10eabed0019c)
    
-   ![large](https://github.com/user-attachments/assets/fc34ec29-31a2-4970-8e3a-77ca168d2eab)
+  
 
 
