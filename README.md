@@ -22,7 +22,7 @@ https://souldles.atabook.org/">
 
    ![Không Có Tiêu Đề259_20241113192140](https://github.com/user-attachments/assets/598d59fc-0bab-4b44-8343-23fbbff5b106)
 
-   ![tumblr_pck782oqNt1rlc5h1o1_640](https://github.com/user-attachments/assets/9a8d3966-8bdf-47eb-b684-10eabed0019c)
+  
    
   
 
