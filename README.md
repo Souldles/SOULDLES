@@ -1,7 +1,6 @@
-https://souldles.straw.page/">                 ![8ae4030f55c19071118cb62db9075b1d](https://github.com/user-attachments/assets/8e17e1b5-740c-47a1-84fa-382ba82c0b60)
+https://souldles.straw.page/">  https://souldles.atabook.org/">             ![8ae4030f55c19071118cb62db9075b1d](https://github.com/user-attachments/assets/8e17e1b5-740c-47a1-84fa-382ba82c0b60)
 
 
-https://souldles.atabook.org/">
                                 
                                      
                                      • main acc : @Souldlessfix •
