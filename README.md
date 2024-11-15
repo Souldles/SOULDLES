@@ -18,8 +18,8 @@
                     I don't pin you if you mess with me, I always ignore everything
                         
         ┆ Please get acquainted, please do not ask about the address of the vocational school ┆
-                                            »»——⍟——««
-
+                                               »»——⍟——««
+ 
 
    ![Không Có Tiêu Đề259_20241113192140](https://github.com/user-attachments/assets/598d59fc-0bab-4b44-8343-23fbbff5b106)
 
