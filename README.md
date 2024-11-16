@@ -4,7 +4,5 @@
                                 •  Discord : Souldlessfix • 
                                            *𝑶𝒉*
                               ◀ Regularly Afk listen to music ▶
-                             
-![Không Có Tiêu Đề263_20241116095011](https://github.com/user-attachments/assets/4ee328d9-8f96-4956-bd50-c0a8757dd392)
-
+![Không Có Tiêu Đề263_20241116095804](https://github.com/user-attachments/assets/bf00dd9d-7c36-4aee-a772-80a047602696)
 
