@@ -1,4 +1,4 @@
-•  .  ✦ ![](https://komarev.com/ghpvc/?username=your-github-username&color=lightgrey&abbreviated&=true) •  .  ✦ -__-----
+•  .  ✦ ![](https://komarev.com/ghpvc/?username=your-github-username&color=lightgrey&abbreviated=true) •  .  ✦ -__-----
 ![ranfren-randal](https://github.com/user-attachments/assets/df360829-7c6b-4e9e-906d-14e7a1845ca5)
 
                              ✦                              ✦
